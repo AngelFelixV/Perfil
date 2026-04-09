@@ -2,7 +2,7 @@
 
 **Físico especializado en Computación | Científico de Datos | Culiacán, Sinaloa 🇲🇽**
 
----
+--- 
 
 ## 👨‍🎓 Sobre mí
 
